@@ -20,4 +20,4 @@ They/Them or She/Her, would prefer they over she.
 
 Hobbyist in Portland OR area. Going for AA in Network Engineering.
 
-I do a lot of work for [https://remo.tv](Remo.TV) in my free time. I handle crowd control and moderation for the most part. Check out my pinned Repos!
+I do a lot of work for [Remo.TV](https://remo.tv) in my free time. I handle crowd control and moderation for the most part. Check out my pinned Repos!

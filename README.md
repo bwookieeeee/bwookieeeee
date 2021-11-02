@@ -15,8 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Transgender/Gender-Non-Conforming/Non-Binary, however you choose to label it.
-They/Them or She/Her, would prefer they over she.
+Transfeminine Non-binary person
+she/they
 
 Hobbyist in Portland OR area. Going for AA in Network Engineering.
 
